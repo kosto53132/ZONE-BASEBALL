@@ -1,4 +1,4 @@
-## Welcome to GitHub Pages
+## Welcome players, family, friends, and FANS to ZONE BASEBAll 2018!!!!
 
 You can use the [editor on GitHub](https://github.com/kosto53132/ZONE-BASEBALL/edit/master/README.md) to maintain and preview the content for your website in Markdown files.
 
